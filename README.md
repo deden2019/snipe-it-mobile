@@ -29,3 +29,8 @@ apabila kalian ingin mensupport atau donasi aplikasi android ini bisa support sa
 https://saweria.co/akangtekno
 
 agar saya jadi semangat membuat aplikas aplikasi yang lain nya.
+
+
+
+<img width="358" height="782" alt="{9802E144-039E-4330-A9B1-35EE7AE27C43}" src="https://github.com/user-attachments/assets/24167719-04d5-4bbd-a686-6b51cc863978" />
+
